@@ -1,3 +1,6 @@
 ![alt text][logo]
 
-[logo]: https://64.media.tumblr.com/4ccc4cb5744f863acc27574f5d4565e4/0b6c1666d65b3d1e-a5/s1280x1920/74fb8e9671edf04fb898ca4e76965c8cc3fad297.jpg "FUCK"
+[logo]: https://64.media.tumblr.com/3e3f4793cef3a37f0354c87433350442/136f59329199be26-28/s2048x3072/83621ab65b81e92dcdbc25ab7edc69e1dd731010.pnj "FUCK"
+
+$${\color{orange}I could spend hours here...}$$
+$${\color{yellow}I thought you wanted to farm?}$$
