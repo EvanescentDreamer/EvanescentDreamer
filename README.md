@@ -1,3 +1,5 @@
 ![alt text][logo]
 
-[logo]: https://64.media.tumblr.com/3e3f4793cef3a37f0354c87433350442/136f59329199be26-28/s2048x3072/83621ab65b81e92dcdbc25ab7edc69e1dd731010.pnj "FUCK"
+[logo]: https://64.media.tumblr.com/64963408c20e746314b5336d1134a281/96c69668526e0a6d-6f/s2048x3072/e15fe244c0a3de271ba6d5a487bffe6827eab710.jpg
+
+$${\color{yellow}Art⠀by⠀just-a-joey⠀on⠀tumblr}$$
